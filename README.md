@@ -82,3 +82,9 @@ https://www.facebook.com/watch/?v=390301151581674
 
 انتشال جثث من نهر النيل
 https://www.facebook.com/bashirdiary/videos/332886000724092/?__xts__[0]=68.ARBBbZEKblZYgi4qAe3Lv759uqRmSNyvzSH45IbqijgxXfNvzm1nxhEHFJdtMEyIjpnKzKS3-PAjV2XECSpGomEHpMOEsFkVCyI9A8kbOnHuVEdnXc0vX-eF0U6WCVP4jbel0jJ5qCOQT91QSnW1zSEVWTMYSnuWWPq0uXXG_NbVmd66kRVpKyK_M8Q71iFThBZka9fKL907puw_ldob1eXUWupbV6mH_d-WAZI2XdcdBg71RUhmT1I_ka-HfyQ5Wy6Egv1rHP_8ctK4qnr-dqduM1eiYcA6Oo4tk6zWpLHIJf-5qdH2yGPNNCqrHgm-zvE4E5HtutRhjC7NMZo54GagtbOca09D7rBEgFXOmiVQan_PQQcKsCI-ZKGXrfSY&__tn__=H-R
+
+
+
+# 6 June 2019 
+توثيق لجرائم النظام وقوات الجنجويد
+https://www.facebook.com/sudanese.social/videos/598721417285273/
